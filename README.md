@@ -1,2 +1,0 @@
-# AEMTEKN-K
-AEMTEKNİK
